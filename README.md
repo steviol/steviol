@@ -1,1 +1,1 @@
-[there](https://git.steviol.gay/)
+[there](https://git.steviol.ru/)
